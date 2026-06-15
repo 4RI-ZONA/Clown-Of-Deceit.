@@ -18,6 +18,17 @@ ${\textsf{\color{#124862}✦   ̣̣ ۟    ︵}}$    <https://delightfuljester.st
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Yellowtail&size=25&pause=1000&color=374DA4C1&background=CDDDD5&center=true&width=435&height=60&lines=TA-DA!+The+star+of+the+show+has+arrived!" alt="Typing SVG" /></a>
+
+<img width="99" height="56" alt="17815564372466786151268778649808" src="https://github.com/user-attachments/assets/9676ca3d-5495-4d9f-b559-44c08c782912" /> <img width="99" height="56" alt="17815564948126222737309031902300" src="https://github.com/user-attachments/assets/549863e2-d952-4eec-b10a-aff113141569" /> <img width="99" height="56" alt="17815573900986032890847568284306" src="https://github.com/user-attachments/assets/5b7a18ae-5998-4b93-930f-7643d1da147c" />
+ <img width="101" height="56" alt="17815569230162801257305763037591" src="https://github.com/user-attachments/assets/956eb121-a25f-49a1-903f-ba020208a4cb" /> <img width="99" height="56" alt="1781557906631855974270188866859" src="https://github.com/user-attachments/assets/0e641752-aac2-4b5f-a9a7-b3da501f7bf1" /> <img width="99" height="56" alt="17815579925508747839991776175317" src="https://github.com/user-attachments/assets/8aa5a4ef-54ec-475b-a12d-5139d1534265" />
+
+
+
+
+
+
+
+
 <img width="825" height="105" alt="17793811765229146287697268713109" src="https://github.com/user-attachments/assets/61f20dc7-e406-41e4-8c82-0ddde3e81528" />
 
 
