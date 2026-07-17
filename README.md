@@ -11,7 +11,7 @@ ${\textsf{\color{#293d6f}┈﹒ᘏᘏ﹒ Arizona / SMC 結﹒✦ᩚ֞🔹水՞ՙ
 ${\textsf{\color{#293d6f}⪩谷⪨﹐𑁯🃏ん﹒OSC / CRK / DW ﹒ᕗ﹒︶꒦꒷﹒୨ᕦ}}$
 
 
-${\textsf{\color{#124862}✦   ̣̣ ۟    ︵}}$    <https://delightfuljester.straw.page/> ${\textsf{\color{#124862}    ̣̣ ۟    ︵  ✦}}$
+${\textsf{\color{#124862}✦   ̣̣ ۟    ︵}}$    [Strawpage!](<https://delightfuljester.straw.page/>) ${\textsf{\color{#124862}    ̣̣ ۟    ︵  ✦}}$
 <div align="center">
 <img width="192" height="219" alt="1779465776588285669659813997817" src="https://github.com/user-attachments/assets/fea30336-46a6-4f64-a50a-e1fd07fb9b3d" />
 
@@ -45,7 +45,9 @@ ${\textsf{\color{#124862}✦   ̣̣ ۟    ︵}}$    <https://delightfuljester.st
 
 
 
-https://github.com/user-attachments/assets/6f133531-91ca-48e1-b197-59ef2b097717
+
+https://github.com/user-attachments/assets/d32a6f3c-1c59-4d0e-9e86-2724d008a618
+
 
 
 
