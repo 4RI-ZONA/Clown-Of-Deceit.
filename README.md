@@ -16,8 +16,8 @@ ${\textsf{\color{#124862}✦   ̣̣ ۟    ︵}}$    [Strawpage!](<https://deligh
 <img width="192" height="219" alt="1779465776588285669659813997817" src="https://github.com/user-attachments/assets/fea30336-46a6-4f64-a50a-e1fd07fb9b3d" />
 
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=UnifrakturMaguntia&pause=1000&color=374DA4&background=CDDDD5&center=true&width=435&height=60&lines=TA-DA!+The+Star+Of+The+Show+has+arrived!" alt="Typing SVG" /></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Yellowtail&size=25&pause=1000&color=374DA4C1&background=CDDDD5&center=true&width=435&height=60&lines=TA-DA!+The+star+of+the+show+has+arrived!" alt="Typing SVG" /></a>
 
 <img width="101" height="57" alt="17815581526916762817120856979280" src="https://github.com/user-attachments/assets/75c3942f-1904-442f-9e3a-d00391eabeff" />
  <img width="99" height="56" alt="17815564372466786151268778649808" src="https://github.com/user-attachments/assets/9676ca3d-5495-4d9f-b559-44c08c782912" /> <img width="99" height="56" alt="17815564948126222737309031902300" src="https://github.com/user-attachments/assets/549863e2-d952-4eec-b10a-aff113141569" /> <img width="99" height="56" alt="17815573900986032890847568284306" src="https://github.com/user-attachments/assets/5b7a18ae-5998-4b93-930f-7643d1da147c" />
